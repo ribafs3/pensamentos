@@ -1,1 +1,1 @@
-# pensamentos
+# Pensamentos seletos e boas informações
